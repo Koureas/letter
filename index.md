@@ -15,7 +15,8 @@ We urge the Grand Chamber to step in and correct this.
 
 Respectfully,
 
-John Palmer, Universitat Pompeu Fabra, Barcelona
+Dr. John Palmer, Tenure-Track Professor, Universitat Pompeu Fabra
+Dr. David Moya, Tenured-Track Professor of Constitutional Law, Universitat de Barcelona
 
 _Note that affiliations are listed for identification purposes only_
 
