@@ -1,16 +1,7 @@
-25 May 2018
+# Letter of support for applicants' referral request in _Koureas and Others v. Greece_
 
-Guido Raimondi
-President
-European Court of Human Rights
-Council of Europe
-F-67075 Strasbourg cedex
-France
-
-Re: Grand Chamber referral in Koureas and Others v. Greece (Application No. 30030/15)
-
-
-Dear President Raimondi and members of the panel:
+## European Court of Human Rights
+### Application No. 30030/15
 
 We, the undersigned attorneys and legal scholars, write to strongly support the applicants’ referral request in Koureas and Others v. Greece (Application No. 30030/15). The chamber judgment in this case requires review because its interpretation of Article 41 of the ECHR diverges from existing Grand Chamber precedent in ways that undermine the ability of human rights victims to obtain remedies before this court. 
 
