@@ -20,5 +20,5 @@ Dr. David Moya, Tenured-Track Professor of Constitutional Law, Universitat de Ba
 
 _Note that affiliations are listed for identification purposes only_
 
-### If you would like to sign-on to this letter, please email johnrbpalmer@gmail.com before 8 PM CET on Sunday, May 27.
+### If you would like to sign-on to this letter, please email johnrbpalmer@gmail.com before 8 PM CET on Sunday, May 27 with your name and affiliation as you would like them listed.
 
