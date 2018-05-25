@@ -15,5 +15,7 @@ We urge the Grand Chamber to step in and correct this.
 
 Respectfully,
 
-John Palmer
+John Palmer, Universitat Pompeu Fabra, Barcelona
+
+_Note that affiliations are listed for identification purposes only_
 
