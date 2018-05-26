@@ -19,6 +19,7 @@ Dr. John Palmer, Tenure-Track Professor, Universitat Pompeu Fabra<br>
 Dr. David Moya, Tenure-Track Professor of Constitutional Law, Universitat de Barcelona<br>
 Dr. Mireia Artigot-Golobardes, Tenure-Track Professor of Civil Law, Universitat Pompeu Fabra<br>
 Didac Amat i Puigsech, Jurist and Political Scientist<br>
+Iris Pallarol Isábal, Law student, Universitat Pompeu Fabra<br>
 
 
 _Note that affiliations are listed for identification purposes only_
