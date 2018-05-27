@@ -15,11 +15,15 @@ We urge the Grand Chamber to step in and correct this.
 
 Respectfully,
 
-Dr. John Palmer, Tenure-Track Professor, Universitat Pompeu Fabra<br>
-Dr. David Moya, Tenure-Track Professor of Constitutional Law, Universitat de Barcelona<br>
-Dr. Mireia Artigot-Golobardes, Tenure-Track Professor of Civil Law, Universitat Pompeu Fabra<br>
-Didac Amat i Puigsech, Jurist and Political Scientist<br>
-Iris Pallarol Isábal, Law student, Universitat Pompeu Fabra<br>
+* Dr. John Palmer, Tenure-Track Professor, Universitat Pompeu Fabra
+* Dr. David Moya, Tenure-Track Professor of Constitutional Law, Universitat de Barcelona
+* Dr. Mireia Artigot-Golobardes, Tenure-Track Professor of Civil Law, Universitat Pompeu Fabra
+* Didac Amat i Puigsech, Jurist and Political Scientist
+* Iris Pallarol Isábal, Law student, Universitat Pompeu Fabra
+* Beth Lyon, Clinical Professor of Law, Assistant Director of Clinical, Advocacy and Skills Programs, Director, Farmworker Legal Assistance Clinic, Co-Director, Low Income Taxpayer Law and Accounting Practicum, Cornell Law School
+* Lenni B. Benson, Professor of Law, Director Safe Passage Project Clinic, New York Law School
+* Ana Calvo Sierra, Jurist
+
 
 
 _Note that affiliations are listed for identification purposes only_
