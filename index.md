@@ -23,6 +23,8 @@ Respectfully,
 * Beth Lyon, Clinical Professor of Law, Assistant Director of Clinical, Advocacy and Skills Programs, Director, Farmworker Legal Assistance Clinic, Co-Director, Low Income Taxpayer Law and Accounting Practicum, Cornell Law School
 * Lenni B. Benson, Professor of Law, Director Safe Passage Project Clinic, New York Law School
 * Ana Calvo Sierra, Jurist
+* Dr. Marta Abegón Novella, Lecturer in International Law, Universitat Pompeu Fabra
+
 
 
 
