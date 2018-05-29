@@ -25,6 +25,7 @@ Respectfully,
 * Ana Calvo Sierra, Jurist
 * Dr. Marta Abegón Novella, Lecturer in International Law, Universitat Pompeu Fabra
 * Dr. Andreu Olesti Rayo, Catedràtic d'universitat, Dret Internacional Públic i Relacions Internacionals, Facultat de Dret, Universitat de Barcelona
+* Maureen A. Sweeney, Law School Associate Professor, University of Maryland Carey School of Law
 
 
 
