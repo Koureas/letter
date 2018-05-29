@@ -24,6 +24,7 @@ Respectfully,
 * Lenni B. Benson, Professor of Law, Director Safe Passage Project Clinic, New York Law School
 * Ana Calvo Sierra, Jurist
 * Dr. Marta Abegón Novella, Lecturer in International Law, Universitat Pompeu Fabra
+* Dr. Andreu Olesti Rayo, Catedràtic d'universitat, Dret Internacional Públic i Relacions Internacionals, Facultat de Dret, Universitat de Barcelona
 
 
 
